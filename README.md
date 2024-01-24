@@ -1,2 +1,2 @@
 # Studies
-Name says it all
+Name says it all 🕳
